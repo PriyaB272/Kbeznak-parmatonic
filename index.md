@@ -1,6 +1,6 @@
 The story of Kbeznak Parmatonic:
 
-The term/phrase Kbeznak Parmatonic is going to be mentioned by hundreds of webpages in the next one week. (Yes. I can foresee the future. Skills!). Kbeznak parmatonic is a term that was coined on February 16, 2018 by Dr. James Caverlee, professor in Computer Science and Engineering department of Texas A&M University. He is a visiting scientist in Google as well. (Cool, isn't it?)
+The term/phrase Kbeznak Parmatonic is going to be mentioned by hundreds of webpages in the next one week. (Yes. I can foresee the future. Skills!). Kbeznak parmatonic is a term that was coined on February 16, 2018 by [Dr. James Caverlee](http://faculty.cse.tamu.edu/caverlee/), professor in [Computer Science and Engineering department]http://engineering.tamu.edu/cse.html of [Texas A&M University]https://www.tamu.edu/. He is a visiting scientist in [Google]https://www.google.com/ as well. (Cool, isn't it?)
 
 
 
