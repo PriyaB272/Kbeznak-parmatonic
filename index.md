@@ -11,3 +11,5 @@ The Homework 2 that was given right after the class requires us to create a web 
 This homework is a part of Information storage and retrieval class and the aim of the homework is to learn about SEO techniques and to implement only the white hat techniques to bring the page to the top of the results. Well. It is interesting I must say. So as mentioned earlier there are going to be hundreds of pages talking about the kbeznak parmatonic (because we are 100 students in the class). Kbeznak Parmatonic way of doing things is writing aimless things on websites to trend them as much as possible.
 
 Everyone is going parmatonic (I would like think crazy!) over Kbeznak (I would like to think the homework given. Because, simply it is hard to obsess over words that mean nothing). Me included. 
+
+Kbeznak Parmatonic is going to haunt me for the rest of my life! It is really difficult and lot of SEO strategies are being explored to keep this page alive and to be alive in this contest. It is definitely not easy, I must say. But rather the experience is enjoyable. Hope I have more fun trying to do this. 
