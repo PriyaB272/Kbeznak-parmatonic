@@ -1,3 +1,6 @@
+Thanks for visiting :D If you are Cav's student, you know this means a lot ! :D
+
+
 The story of Kbeznak Parmatonic:
 
 The term/phrase Kbeznak Parmatonic is going to be mentioned by hundreds of webpages in the next one week. (Yes. I can foresee the future. Skills!). Kbeznak parmatonic is a term that was coined on February 16, 2018 by [Dr. James Caverlee](http://faculty.cse.tamu.edu/caverlee/), professor in [Computer Science and Engineering department](http://engineering.tamu.edu/cse.html) of [Texas A&M University](https://www.tamu.edu/). He is a visiting scientist in [Google](https://www.google.com/) as well. (Cool, isn't it?)
@@ -13,3 +16,5 @@ This homework is a part of Information storage and retrieval class and the aim o
 Everyone is going parmatonic (I would like think crazy!) over Kbeznak (I would like to think the homework given. Because, simply it is hard to obsess over words that mean nothing). Me included. 
 
 Kbeznak Parmatonic is going to haunt me for the rest of my life! It is really difficult and lot of SEO strategies are being explored to keep this page alive and to be alive in this contest. It is definitely not easy, I must say. But rather the experience is enjoyable. Hope I have more fun trying to do this. 
+
+I have no clue what I'm writing anymore !!
