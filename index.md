@@ -20,3 +20,7 @@ Kbeznak Parmatonic is going to haunt me for the rest of my life! It is really di
 I have no clue what I'm writing anymore !!
 
 Just updating. Kbeznak Parmatonic. Have Mid term coming up too !! Freaking out begins officially. Looking at the old question paper didn't help either. Sad Sad! :(
+
+Word to Vec:
+Word2Vec, Doc2Vec, Tweet2Vec, Author2Vec.
+
