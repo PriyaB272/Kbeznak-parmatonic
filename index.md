@@ -18,3 +18,5 @@ Everyone is going parmatonic (I would like think crazy!) over Kbeznak (I would l
 Kbeznak Parmatonic is going to haunt me for the rest of my life! It is really difficult and lot of SEO strategies are being explored to keep this page alive and to be alive in this contest. It is definitely not easy, I must say. But rather the experience is enjoyable. Hope I have more fun trying to do this. 
 
 I have no clue what I'm writing anymore !!
+
+Just updating. Kbeznak Parmatonic. Have Mid term coming up too !! Freaking out begins officially. Looking at the old question paper didn't help either. Sad Sad! :(
