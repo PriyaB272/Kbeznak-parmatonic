@@ -24,3 +24,7 @@ Just updating. Kbeznak Parmatonic. Have Mid term coming up too !! Freaking out b
 Word to Vec:
 Word2Vec, Doc2Vec, Tweet2Vec, Author2Vec.
 
+[Jeff Dean](https://en.m.wikipedia.org/wiki/Jeff_Dean_(computer_scientist)) becomes the head of [Google](https://www.google.com/)'s search and AI unit. whooopppp!
+
+https://www.theverge.com/2018/4/3/17191944/google-ai-head-jeff-dean-reshuffle-john-giannandrea
+
